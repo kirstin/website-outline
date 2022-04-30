@@ -232,3 +232,8 @@ _If at the end of this process, you are not satisfied with the outcome:_
 
 **3.   Contact CTW**  
 If the steps before didn't work out for you or you don't feel comfortable with contacting me directly, you can contact  the Conflict Transformation Weave. They will follow this procedure. You can find information about and ways of contacting the CTW at: [https://ctw-uk.com](https://ctw-uk.com)
+
+## Testimonials
+> I really appreciate what I experience as your relaxed, confident clarity with attention to detail. 
+I’m remembering your conflict transformation skills, persistence and courage as I see it from when we were together at camp in the summer. 
+I’m also seeing you as incredibly resourceful [...] _Annie Scott, NVC Trainer_
